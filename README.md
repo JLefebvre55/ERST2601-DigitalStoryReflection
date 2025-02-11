@@ -8,8 +8,8 @@
 - Narrative arc; my learning journey:
 
 1. My background in engineering, stakeholdership vs relationality, design praxis vs biocultural praxis, systems thinking vs land-people-culture thinking, and the importance of storytelling in engineering:
-  1. Controlled environment agriculture journey, choosing a challenge over choosing a passion (eng over ag), and dealing with disappointment and failure
-  2. Intelligent design and relationality in stakeholdership, consideration of perspectives and values, and placing your focus where it matters most
+  1. Controlled environment agriculture journey, choosing a challenge over choosing a passion (eng over ag), and dealing with disappointment and failure (IMAGE: DAVE)
+  2. Intelligent design and relationality in stakeholdership, consideration of perspectives and values, and placing your focus where it matters most (IMAGE: CHESTNUT MEAL PLAN SURVEY & REPORT)
   3. Personal growth and resetting priorities, the importance of personal relationships and community, and the significance of solving "people problems" over technical feats
 2. Discovery of a love for the environment and transfer to Trent, the importance of the land and Indigenous knowledge, and what I've learned so far:
    1. SAFS: Organic, regenerative, sustainability
